@@ -6,4 +6,4 @@ Platon’un ölümünden sonra Atina’dan ayrılan Aristoteles, bir süre Maked
 Daha sonra tekrar Atina’ya dönen Aristoteles, burada Lykeion (Lise) adlı kendi okulunu kurmuştur. Aristoteles; mantık, felsefe, etik, siyaset, biyoloji ve doğa bilimleri gibi birçok alanda çalışmalar yapmıştır. Özellikle mantık biliminin kurucusu olarak kabul edilir. Düşüncelerini sistemli hâle getirerek bilimsel düşüncenin gelişmesine büyük katkı sağlamıştır.
 
 Aristoteles
-MÖ 322 yılında hayatını kaybeden Aristoteles’in fikirleri, yüzyıllar boyunca hem İslam dünyasında hem de Avrupa’da bilim ve felsefeyi etkilemiştir. Günümüzde bile eserleri önemini korumaktadır.
+MÖ 322 yılında hayatını kaybeden Aristoteles in fikirleri yüzyıllar boyuca hem islam dünyasında hemde Avrupa'da bilim ve felsereyi etkilemiştir. Günümüzde bile eserleri önemini korumaktadır.
